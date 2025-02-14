@@ -6,7 +6,7 @@ The Genius Wave is a digital audio program designed to enhance cognitive functio
 
 
 
-CLICK HERE READ REVIEW THEN BUY AT OFFICIAL WEBSITES
+[CLICK HERE READ REVIEW THEN BUY AT OFFICIAL WEBSITES](https://99b3cbnoo7qahz08g7vm6y1x7i.hop.clickbank.net)
 
 
 
